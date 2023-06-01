@@ -1,0 +1,2 @@
+# dicky-ardiansyah
+buka data
